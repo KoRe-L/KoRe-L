@@ -5,6 +5,6 @@
 - 📫 How to reach me? Don't take the blue pill 💊
 
 🥳🕺🤪
-'KoRe' is a ✨ special ✨ part of 'L' because... He's happy if you feel like happiness is the truth. `README.md` (this file) appears on your GitHub profile..
+'KoRe' is a ✨ 🛸 ✨ part of 'L' because... He's happy if you feel like happiness is the truth. `README.md` (this file) appears on your GitHub profile..
 You can click the Preview link to take a look at your changes.
 --->
